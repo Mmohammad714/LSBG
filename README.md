@@ -1,2 +1,2 @@
 # LSBG
-I will study Low Surface Brightness Galaxies wuth Doc Jenny Greene 
+I will study Low Surface Brightness Galaxies wuth Dr. Jenny Greene 
